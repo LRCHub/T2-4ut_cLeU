@@ -1,4 +1,4 @@
-# キタニタツヤ – Cinnamon / キタニタツヤ – Cinnamon / Tatsuya Kitani
+# キタニタツヤ – Cinnamon
 
 > **歌詞登録ステータス：プレーン歌詞のみ**
 
